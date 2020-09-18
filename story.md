@@ -27,4 +27,6 @@ He liked my best friend, not me...
 
    "Oh, okay, thanks, Renee! Bye!" Jackson replied with a smile. 
   I could obviously hear the tinge of sadness in his voice. 
+  Maybe I should give up on this stupid crush. 
   
+    
