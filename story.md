@@ -1,5 +1,6 @@
 # a cheesy love story 
 
+*renee pov*
   His brown chocolate eyes, the way he sweeps his hair to the side and his laugh... 
 I swear, he is going to be the death of me. 
 How can one be so perfect? 
@@ -21,13 +22,16 @@ Turning around, I realised it was him, Jackson, the guy I am head over heels for
 
   "So..." Jackson started. "Do you know what kind of guys Jessica likes? I mean, she's you're best friend after all." 
 Upon hearing those words, my heart shattered into a million pieces. 
-He liked my best friend, not me...
+He likes my best friend, not me... 
+I guess this is where everything in life goes downhill just like those in the books that I read.
 
   "Yeah, she likes tall and witty guys," I lied, hoping that he would fall for it. 
 
-   "Oh, okay, thanks, Renee! Bye!" Jackson replied with a smile. 
-  I could obviously hear the tinge of sadness in his voice. 
-  Maybe I should give up on this stupid crush. 
-  
-    
-# I AINT DONE OK
+  "Oh, okay, thanks, Renee! Bye!" Jackson replied with a smile. 
+I could obviously hear the tinge of sadness in his voice. 
+He probably thought that he did not classify as a guy that Jessica would like. 
+Maybe I should give up on this stupid crush. 
+But how could I, he has everything I want in a guy. 
+The fact that I cannot get him makes me like him even more. 
+Why am I reacting this way? 
+I should probably tell Jessica that Jackson likes her 
