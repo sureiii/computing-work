@@ -4,7 +4,7 @@
 I swear, he is going to be the death of me. 
 How can one be so perfect? 
 He is so nice, funny, smart and kind. 
-What is this boy doing to me? 
+What is he doing to me? 
 I have never fallen this hard before... 
 This boy must really have a huge effect on me.
 
@@ -13,4 +13,4 @@ This boy must really have a huge effect on me.
 
   "Sorry, spaced out for a moment," I replied. 
 That was close. 
-I should probably pay attention instead of thinking of him. 
+I should probably pay attention instead of thinking of him. But how could I?
