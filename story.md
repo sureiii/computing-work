@@ -1,6 +1,7 @@
 # a cheesy love story 
 
-*renee pov*
+*Renee POV* 
+
   His brown chocolate eyes, the way he sweeps his hair to the side and his laugh... 
 I swear, he is going to be the death of me. 
 How can one be so perfect? 
@@ -34,4 +35,9 @@ Maybe I should give up on this stupid crush.
 But how could I, he has everything I want in a guy. 
 The fact that I cannot get him makes me like him even more. 
 Why am I reacting this way? 
-I should probably tell Jessica that Jackson likes her 
+I should probably tell Jessica that Jackson likes her. 
+
+*Jackson POV* 
+
+She is so focused, the way she scrunches her eyes as she thinks of ideas for our project, and her tiny giggles whenever I crack a lame joke. 
+All those traits just maker her seem... *perfect* 
