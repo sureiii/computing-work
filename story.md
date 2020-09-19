@@ -90,3 +90,14 @@ In repsonse to Jessica's question, I simply said that I was fine and told her no
 Ren seems so heartbroken... 
 The light in her eyes has faded. 
 I know Jackson does not like me but it pains me not being able to tell Renee the truth. 
+I've got to make them get together. 
+
+the next day...
+
+*Jackson POV* 
+Today is the day where I ask Jessica who Renee likes... 
+I really hope it is me but there is nothing about me to like about. 
+
+*Narrator* 
+Jackson and Jessica went to the cafe after school. 
+
