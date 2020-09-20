@@ -87,17 +87,48 @@ In repsonse to Jessica's question, I simply said that I was fine and told her no
 
 *Jessica POV*
 
-Ren seems so heartbroken... 
-The light in her eyes has faded. 
+Renee seems so heartbroken... 
+The light in her eyes has faded. I can't stand seeing her in this state.
 I know Jackson does not like me but it pains me not being able to tell Renee the truth. 
-I've got to make them get together. 
+I've got to make them get together, somehow.
 
 the next day...
 
 *Jackson POV* 
+
 Today is the day where I ask Jessica who Renee likes... 
-I really hope it is me but there is nothing about me to like about. 
+I do hope that it is me but... there is nothing about me to like about. Why would Renee even like someone like me?
 
 *Narrator* 
+
 Jackson and Jessica went to the cafe after school. 
+
+*Jessica POV*
+
+"Hey... so, this is about Renee isn't it?"
+Upon hearing my words, Jackson looked up, startled. Did he really think no one would notice?
+
+*Jackson POV*
+
+"H-how did you know?"
+I was relieved that I did not have to explain myself to Jessica, but I was still clueless as to how she knew what I was about to say. 
+Shaking off those thoughts, I decided to jump straight into what I came here for.
+"So, Jessica. By any chance, do you know who Renee likes? I mean, totally not because I'm interested or anything-"
+My face flushed red. Was that too obvious?
+
+*Jessica POV*
+
+I let out a small chuckle. This guy, he really is serious about Renee. Well fortunately for them both, they will definitely have no problem in getting together.
+
+*Renee POV*
+
+Lost in my thoughts about Jackson, I stumbled upon a cozy cafe. 
+"It wouldn't hurt to spoil myself for now, would it?"
+I smiled to myself, before I realised something.
+Jessica.
+With Jackson.
+Eating cake.
+Laughing together.
+I stopped thinking for a moment. I shouldn't be angry. Jessica's my best friend. I should be happy for her.
+Nevermind, I was never in the picture anyways, I should just leave before my emotions get the better of me.
 
