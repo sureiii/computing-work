@@ -174,7 +174,11 @@ No response.
 "Wait, you belived my lie? I thought it was pretty obvious that I liked you.." 
 She shot up, getting out of my grip. 
 "What did you say?" 
+
 "That you believed my lie?" 
+
 "No, after that." 
+
 "That it was obvious that I like you?" 
+
 "You like me? How? I'm just a nobo-" 
