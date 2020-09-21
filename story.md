@@ -4,17 +4,21 @@
 
   His brown, chocolate eyes, the way he sweeps his hair to the side and his laugh... 
 I swear, he is going to be the death of me. 
+
+How can one be so perfect? 
+He is so nice, funny, smart and kind. 
+What is he doing to me? 
 How can one be so... *perfect*? 
 He is so funny, smart and kind. 
 *What is this boy doing to me?* 
 I have never fallen this hard before... 
 He must really have a huge effect on me.
 
-
   "Renee? Are you still there?" Jackson questioned.
 
   "Sorry, spaced out for a moment," I replied. 
 That was close. 
+I should probably pay attention instead of thinking of him. But how could I?
 I should probably pay attention to his words instead of his face. 
 
 *Jackson POV* 
@@ -159,3 +163,4 @@ Wait a minute...
 THAT'S RENEE. 
 OH NO I MESSED UP BIG TIME.
 "Jessica, I think I just saw Renee. I've got to go."
+
