@@ -2,13 +2,13 @@
 
 *Renee POV* 
 
-  His brown chocolate eyes, the way he sweeps his hair to the side and his laugh... 
+  His brown, chocolate eyes, the way he sweeps his hair to the side and his laugh... 
 I swear, he is going to be the death of me. 
 How can one be so... *perfect*? 
 He is so funny, smart and kind. 
 *What is this boy doing to me?* 
 I have never fallen this hard before... 
-This boy must really have a huge effect on me.
+He must really have a huge effect on me.
 
 
   "Renee? Are you still there?" Jackson questioned.
@@ -92,7 +92,7 @@ The light in her eyes has faded. I can't stand seeing her in this state.
 I know Jackson does not like me but it pains me not being able to tell Renee the truth. 
 I've got to make them get together, somehow.
 
-the next day...
+The next day...
 
 *Jackson POV* 
 
@@ -113,12 +113,17 @@ Upon hearing my words, Jackson looked up, startled. Did he really think no one w
 "H-how did you know?"
 I was relieved that I did not have to explain myself to Jessica, but I was still clueless as to how she knew what I was about to say. 
 Shaking off those thoughts, I decided to jump straight into what I came here for.
-"So, Jessica. By any chance, do you know who Renee likes? I mean, totally not because I'm interested or anything-"
-My face flushed red. Was that too obvious?
+"So, Jessica, by any chance, do you know who Renee likes? I mean, totally not because I'm interested or anything-" 
+I paused mid-sentence.
+I could feel the heat rising to my cheeks. 
+Was that too obvious?
 
 *Jessica POV*
 
-I let out a small chuckle. This guy, he really is serious about Renee. Well fortunately for them both, they will definitely have no problem in getting together.
+I let out a small chuckle. 
+This guy, he really is serious about Renee. 
+Well fortunately for them both, they will definitely have no problem in getting together. 
+"Don't worry, that girl is crazy over you too," I said, looking directly at him in the eye with a smirk.
 
 *Renee POV*
 
@@ -129,6 +134,28 @@ Jessica.
 With Jackson.
 Eating cake.
 Laughing together.
-I stopped thinking for a moment. I shouldn't be angry. Jessica's my best friend. I should be happy for her.
-Nevermind, I was never in the picture anyways, I should just leave before my emotions get the better of me.
+I stopped thinking for a moment. 
+I shouldn't be angry. 
+Jessica's my best friend. 
+I should be happy for her.
+Nevermind, I was never in the picture anyways, I should just leave before my emotions get the better of me. 
+However, I just stood there, my legs refusing to move. 
+Torturing myself to watch that scene. 
+Hot tears flowed down my cheeks. 
+Why am I crying? 
+Do I really like him that much? 
+Why is it every time I want to comfort myself, soemthing bad just has to happen.
+Wiping my tears, I dashed out of the café.
 
+*Jackson POV* 
+
+After assuring me that Renee felt the same way I did, Jessica shared different stories about Renee, causing both of us to crack up. 
+These embarrassing stories of Renee just make her seem even more perfect than ever. 
+Suddenly, from the corner my eye, I saw a figure standing by the door of the café. 
+She looks vaguely familiar... Have I seen her before? 
+She stood facing my directon. 
+She wiped her face and dashed out of the café. 
+Wait a minute... 
+THAT'S RENEE. 
+OH NO I MESSED UP BIG TIME.
+"Jessica, I think I just saw Renee. I've got to go."
