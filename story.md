@@ -7,7 +7,7 @@ I swear, he is going to be the death of me.
 
 How can one be so perfect? 
 He is so nice, funny, smart and kind. 
-What is he doing to me? 
+What is this boy doing to me? 
 How can one be so... *perfect*? 
 He is so funny, smart and kind. 
 *What is this boy doing to me?* 
@@ -18,8 +18,9 @@ He must really have a huge effect on me.
 
   "Sorry, spaced out for a moment," I replied. 
 That was close. 
-I should probably pay attention instead of thinking of him. But how could I?
-I should probably pay attention to his words instead of his face. 
+I should probably pay attention instead of thinking of him. 
+But how could I?
+ 
 
 *Jackson POV* 
 
