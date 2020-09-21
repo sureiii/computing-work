@@ -22,7 +22,7 @@ I should probably pay attention instead of thinking of him.
 But how could I?
  
 
-*Jackson POV* 
+*Jason POV* 
 
   She is so focused, the way she scrunches her eyes as she thinks of ideas for our project, and her tiny giggles whenever I crack a lame joke. 
 The way she is constantly deep in thought and constantly asks these deep questions,
@@ -37,25 +37,25 @@ I am falling so hard for this girl...
 
   After school, while walking to the train station, I was lost in my sea of thoughts. 
 "Hey," a voice came from behind me, followed by a tap on my shoulder. 
-Turning around, I realised it was him, Jackson, the guy I am head over heels for. 
+Turning around, I realised it was him, Jason, the guy I am head over heels for. 
 
-  "So..." Jackson started. "Do you know what kind of guys and food that Jessica likes? I mean, she's you're best friend after all." 
+  "So..." Jason started. "Do you know what kind of guys and food that Jessica likes? I mean, she's you're best friend after all." 
 Upon hearing those words, my heart shattered into a million pieces. 
 He likes my best friend, not me... 
 I guess this is where everything in life goes downhill just like those in the books that I read.
 
   "Yeah, she likes tall and witty guys. Her favourite food is probably cake, especially matcha," I lied, hoping that he would fall for it. 
 
-  "Oh, okay, thanks, Renee! Bye!" Jackson replied with a smile. 
+  "Oh, okay, thanks, Renee! Bye!" Jason replied with a smile. 
 I could obviously hear the tinge of sadness in his voice. 
 He probably thought that he did not classify as a guy that Jessica would like. 
 Maybe I should give up on this stupid crush. 
 But how could I, he has everything I want in a guy. 
 The fact that I cannot get him makes me like him even more. 
 Why am I reacting this way? 
-I should probably tell Jessica that Jackson likes her. 
+I should probably tell Jessica that Jason likes her. 
 
-*Jackson POV* 
+*Jason POV* 
 
   I regret asking her that question but I had to, if not she would think that I like her. 
 I doubt that she would like a guy like me... 
@@ -71,7 +71,7 @@ I am so nervous... Wish me luck.
 *Renee POV* 
 
   "Jessie, I've got some news to tell you. Whether it's good or bad is really up to you," I started. 
-"Jackson has a crush on you. I think he would uh confess to you soon?" 
+"Jason has a crush on you. I think he would uh confess to you soon?" 
 I sound too hesitant, she is not going to believe me. 
 
 "But isn't he your crush? 
@@ -94,26 +94,28 @@ In repsonse to Jessica's question, I simply said that I was fine and told her no
 
 Renee seems so heartbroken... 
 The light in her eyes has faded. I can't stand seeing her in this state.
-I know Jackson does not like me but it pains me not being able to tell Renee the truth. 
+I know Jason does not like me but it pains me not being able to tell Renee the truth. 
 I've got to make them get together, somehow.
 
 The next day...
 
-*Jackson POV* 
+*Jason POV* 
 
 Today is the day where I ask Jessica who Renee likes... 
-I do hope that it is me but... there is nothing about me to like about. Why would Renee even like someone like me?
+I do hope that it is me but... there is nothing about me to like about. 
+Why would Renee even like someone like me?
 
 *Narrator* 
 
-Jackson and Jessica went to the cafe after school. 
+Jason and Jessica went to the cafe after school. 
 
 *Jessica POV*
 
 "Hey... so, this is about Renee isn't it?"
-Upon hearing my words, Jackson looked up, startled. Did he really think no one would notice?
+Upon hearing my words, Jason looked up, startled. 
+Did he really think no one would notice?
 
-*Jackson POV*
+*Jason POV*
 
 "H-how did you know?"
 I was relieved that I did not have to explain myself to Jessica, but I was still clueless as to how she knew what I was about to say. 
@@ -132,11 +134,11 @@ Well fortunately for them both, they will definitely have no problem in getting 
 
 *Renee POV*
 
-Lost in my thoughts about Jackson, I stumbled upon a cozy cafe. 
+Lost in my thoughts about Jason, I stumbled upon a cozy cafe. 
 "It wouldn't hurt to spoil myself for now, would it?"
 I smiled to myself, before I realised something.
 Jessica.
-With Jackson.
+With Jason.
 Eating cake.
 Laughing together.
 I stopped thinking for a moment. 
@@ -152,7 +154,7 @@ Do I really like him that much?
 Why is it every time I want to comfort myself, soemthing bad just has to happen.
 Wiping my tears, I dashed out of the café.
 
-*Jackson POV* 
+*Jason POV* 
 
 After assuring me that Renee felt the same way I did, Jessica shared different stories about Renee, causing both of us to crack up. 
 These embarrassing stories of Renee just make her seem even more perfect than ever. 
@@ -182,3 +184,29 @@ She shot up, getting out of my grip.
 "That it was obvious that I like you?" 
 
 "You like me? How? I'm just a nobo-" 
+I placed my finger on her lips. 
+She souldn't be talking about herself like that. 
+
+"Do you like me back? I mean Jessica said you did but..." 
+I rambled on, getting more and more nervous as each second passed. 
+The following thing that happened was something I never thought would happen. 
+ 
+She hugged me. 
+
+SHE IS HUGGING ME. 
+OH MY GOSH, OH MY GOSH, OH MY GOSH. 
+CALM DOWN, JASON, IT'S ONLY A HUG. 
+
+"Are you alright? You stiffened the moment I hugged you. I guess I make you uncomfortable... I should go-" 
+
+Pulling her back, I whispered, "No, let's stay in this postition." 
+She buried her head in my chest, her arms snaking around my torso. 
+It felt like time had stopped. 
+Even though we were in a fairly crowded park, it felt like it was only the two of us there. 
+Taking advantage of this precious moment, I finally asked her the question. 
+
+"So... Would you be my girlfriend?" 
+
+She nodded her head in response, followed by burrying her head further into my chest. 
+I wish every day could be like this... 
+And it was :)
