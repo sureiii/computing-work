@@ -163,5 +163,18 @@ She wiped her face and dashed out of the café.
 Wait a minute... 
 THAT'S RENEE. 
 OH NO I MESSED UP BIG TIME.
+
 "Jessica, I think I just saw Renee. I've got to go."
 
+"Renee! Renee!" I desperately tried to call out. 
+She was sitting at a bench in the park, curled up in a ball. 
+Instinctively, I sat next to her and pulled her close to me. 
+"Hey, you don't actually think I like Jessica right?" 
+No response. 
+"Wait, you belived my lie? I thought it was pretty obvious that I liked you.." 
+She shot up, getting out of my grip. 
+"What did you say?" 
+"That you believed my lie?" 
+"No, after that." 
+"That it was obvious that I like you?" 
+"You like me? How? I'm just a nobo-" 
